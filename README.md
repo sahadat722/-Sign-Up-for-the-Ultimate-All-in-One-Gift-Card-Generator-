@@ -1,5 +1,5 @@
  -Sign-Up-for-the-Ultimate-All-in-One-Gift-Card-Generator-
- **[Apply Now](https://giftcardzero.com/all%20Gift%20cards722/)**
+  **[Apply Now](https://giftcardzero.com/all%20Gift%20cards722/)**
 
   **[Apply Now](https://giftcardzero.com/all%20Gift%20cards722/)**
 
